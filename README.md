@@ -1,0 +1,2 @@
+# Must-have-Features-in-an-e-procurement-software
+In this digitally fast-paced world, all the organizations around the globe are trying to switch to online ways of growing their businesses. They want to ease their business operations while delivering goods/services at a faster and cheap rate. Thus one of the best and inexpensive ways to handle this is through procurement to pay software. It has many advantages to it which makes it a fruitful solution for all the needs of the business relating to the procurement to pay process.
